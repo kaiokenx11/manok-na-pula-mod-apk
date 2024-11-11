@@ -7,7 +7,7 @@
 Manok Na Pula MOD APK menawarkan pengalaman bertarung ayam yang seru dan unik, di mana Anda bisa langsung bertarung dengan ayam yang memiliki **level maksimal 1000**! Versi ini memberi Anda akses ke semua fitur tanpa batas. Cocok untuk penggemar game aksi muda, game ini menghadirkan nuansa berbeda dengan tema pertarungan ayam yang khas dan mode multiplayer yang menantang.
 
 
-## 👉Unduh👉Disini 🐣👉🐓: [Manok Na Pula MOD APK](https://modhello.com/hungry-shark-world/) 👌🏻
+## 👉Unduh👉Disini 🐣👉🐓: [Manok Na Pula MOD APK](https://modhello.com/manok-na-pula/) 👌🏻
 ---
 
 ### Mengapa Memilih Manok Na Pula MOD APK daripada Versi Asli?
